@@ -2,7 +2,9 @@
 # MY INTRODUCTION
 My name is Komalpreet kaur.I belongs to Malerkotla. I have recently completed my 12th standard from Islamia girls sr. sec. school,Malerkotla.I have completed my 10th standard from Ramgarhia public school, Malerkotla.
 
+
 #My 10th class's marksheet 
+
 |Subject| Marks obtained| Total marks|
 |-------|---------------|------------|
 |Punjabi| 128|150|
@@ -15,8 +17,11 @@ My name is Komalpreet kaur.I belongs to Malerkotla. I have recently completed my
 |Welcome Life|100|100|
 |Agriculture|100|100|
 |Overall grade |A|
+|Result|Pass|
+|Grand Total|533|650|
 
 #My 12th class's marksheet
+
 |Subject| Marks obtained| Total marks|
 |-------|---------------|------------|
 |Punjabi| 87|100|
@@ -29,3 +34,6 @@ My name is Komalpreet kaur.I belongs to Malerkotla. I have recently completed my
 |Overall grade|A|
 |Result|Pass|
 |Grand Total|419|500|
+
+# MY EXCEL CERTIFICATE 
+
