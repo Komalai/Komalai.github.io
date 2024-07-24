@@ -39,6 +39,7 @@ My name is Komalpreet kaur.I belongs to Malerkotla. I have recently completed my
 
 
 # Date :- 24/07/24
+# Induction program
 
 Hello! Today's auditorium session our induction program startes on the exect timming as decleared in the time table . Today's first the speaker was mr. Gauravdeep Singh sir.He told us about his failer in his life and about his learnings that he had learned from his downs.And then he shared the information about his success and his achievements that he was honnered with national award in 2018. He teach us tht how we can transform ourself by just loving ourself and having believe in ourself.Then there was break from 12:30 to 1:30.Then the other speakers arrived.
 who were Yuvraj Singh sir and Lakhwinder
