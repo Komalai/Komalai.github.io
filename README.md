@@ -14,3 +14,4 @@ My name is Komalpreet kaur.I belongs to Malerkotla. I have recently completed my
 |Computer Science|89|100|
 |Welcome Life|100|100|
 |Agriculture|100|100|
+|Overall grade |A|
