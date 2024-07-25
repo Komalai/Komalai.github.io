@@ -51,6 +51,8 @@ Then some students have showed their talent . Overall today I have learned a lot
 # Date :- 25/7/23
 # Indiction program
 
+Today our first class qas of UHV which was conducted by Manjot kaur mam.firstly we have a discussion on our previous chapters. Then further we discussed our next chapter which is Understanding harmony with family Then our class ended at 11:30. Then our class is of Canva in which we have studied the intro of canva and how to use canva for making tamples, presentations,etc. using canva.Oir seniors taught us very politely and in a decent way.then their was break from 12:30 to 1:30.Then in the next lecture their was pur maths test in which we have done well.
+
 Today our first class was of UHV which was conducted by Manjot kaur mam.Firstly in class we have a discussion on our perivious chapter then we discussed our next chapter which is understanding harmony in the family.She taught us about human relationships with others and human brings feelings.the we have a break for 15 min.Then our other class of canva starts at 
 
 
