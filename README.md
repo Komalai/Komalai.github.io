@@ -45,5 +45,5 @@ Hello! In today's auditorium session our induction program startes on the exect 
 who were Yuvraj Singh sir and Lakhwinder
 singh sir qho have told us about NPTEL which stands for National Programme on Technology Enchanced Learning which is under CML, center of multi-faceted learning. The organs of CML are NPTELand skill and personality development.And how we can achieve  success by maintaining our passion with studies.Then further we have lecture on topic cosmic club their our seriors have shared knowledge about cosmic club and how we can be a member of this club. And why we should join this club.
 Then some students have showed their talent . Overall today I have learned a lot of new things that how I can transform myself and how I can develop my personality.
-![alt text](image.jpg)
+![alt text](Screenshot_2024_0724_083515.jpg)
 
