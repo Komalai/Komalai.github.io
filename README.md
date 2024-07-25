@@ -37,7 +37,7 @@ My name is Komalpreet kaur.I belongs to Malerkotla. I have recently completed my
 
 # MY EXCEL CERTIFICATE 
 
-![alt text]()
+![alt text](Screenshot_2024_0724_083515.jpg)
 
 
 # Date :- 24/07/24
