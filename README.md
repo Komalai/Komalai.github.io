@@ -37,6 +37,8 @@ My name is Komalpreet kaur.I belongs to Malerkotla. I have recently completed my
 
 # MY EXCEL CERTIFICATE 
 
+![alt text]()
+
 
 # Date :- 24/07/24
 # Induction program
