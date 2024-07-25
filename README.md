@@ -47,14 +47,5 @@ Hello! In today's auditorium session our induction program startes on the exect 
 who were Yuvraj Singh sir and Lakhwinder
 singh sir qho have told us about NPTEL which stands for National Programme on Technology Enchanced Learning which is under CML, center of multi-faceted learning. The organs of CML are NPTELand skill and personality development.And how we can achieve  success by maintaining our passion with studies.Then further we have lecture on topic cosmic club their our seriors have shared knowledge about cosmic club and how we can be a member of this club. And why we should join this club.
 Then some students have showed their talent . Overall today I have learned a lot of new things that how I can transform myself and how I can develop my personality.
-![alt text]
-Date :- 24/07/24
-# Induction program
 
-Hello! In today's auditorium session our induction program startes on the exect timming as decleared in the time table . Today's first the speaker was mr. Gauravdeep Singh sir.He told us about his failer in his life and about his learnings that he had learned from his downs.And then he shared the information about his success and his achievements that he was honnered with national award in 2018. He teach us tht how we can transform ourself by just loving ourself and having believe in ourself.Then there was break from 12:30 to 1:30.Then the other speakers arrived.
-who were Yuvraj Singh sir and Lakhwinder
-singh sir qho have told us about NPTEL which stands for National Programme on Technology Enchanced Learning which is under CML, center of multi-faceted learning. The organs of CML are NPTELand skill and personality development.And how we can achieve  success by maintaining our passion with studies.Then further we have lecture on topic cosmic club their our seriors have shared knowledge about cosmic club and how we can be a member of this club. And why we should join this club.
-Then some students have showed their talent . Overall today I have learned a lot of new things that how I can transform myself and how I can develop my personality.
-
-(Screenshot_2024_0724_083515.jpg)
 
