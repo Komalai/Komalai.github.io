@@ -64,6 +64,15 @@ Day 4 of our college and induction program  Today was a motivational auditorium 
 
 Day 6 of induction program today their were our classes. First class was of mathematics in which we have a huge discussion on basics of mathematics important topic integral, derivatives, differentiability,etc and we have practised some examples related to our topic. Then our second class was of UHV. here we have discussed our second chapter of UHV.
 
+# Date :- 18/07/24
+# Induction program
+
+Day 7 first session was of pear intersection which was conducted by our senior who is studying in CSE second year. He had taugh is about our college history snd about the marks distribution,various scholarships,bus pass, library pass ,etc.Then our next class was of mathematics then further we have an auditorium session about NSS and NCC that on which motto they works on and how we can become a part of NCC ans NSS.
+
+# Date :- 19/07/24
+# Induction program
+
+Day 8 of induction program 
 
 # Date :- 24/07/24
 # Induction program
