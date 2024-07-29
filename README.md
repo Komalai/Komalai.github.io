@@ -39,6 +39,31 @@ My name is Komalpreet kaur.I belongs to Malerkotla. I have recently completed my
 
 ![alt text](Screenshot_2024_0724_083515.jpg)
 
+# Date :-10/07/24
+# Induction program 
+
+first day of college and first day of induction program firstly there was ardaas kirtan in college's Gurudwara Sahib for our better future it was the first thing that we hava done on our first day which was sending prayers to our almighty . then there we have refreshments then acter refreshments their was an auditorium session which was about college's history and successfull students who are graduated from GNE college.There Mr. Rajeshwar Singh sidhu ,Mr. Jeewandeep Singh were invited as guest of honour to motivate and guide us for our new journey.
+
+# Date :- 11/07/24
+# Induction program
+
+Day second for our college . On our second day of college there was an auditorium sesion . Firstly our session was conducted by Mr. Arvind dhingra sir sir is incharge of TAC.sir was fully confident and he delivered as a great lecture. then the session was conducted by Dr. Parminder Singh sir he have thought us about variour scholarships and student club variety available in our college.Then further session was conducted by Dr. HS rai sir.
+
+# Date :- 12/07/24
+# Induction program
+
+Day 3 of induction program today their were our classes. First class was of mathematics in which we have a huge discussion on basics of mathematics important topic integral, derivatives, differentiability,etc. Then our second class was of UHV which was conducted by Manjot kaur mam . As this subject was totally new to us . Nobody knows about it but our mentor had explained it so well.Lecture was about Human Values. 
+
+# Date :- 15/07/24
+# Induction program
+
+Day 4 of our college and induction program  Today was a motivational auditorium session which was conducted by Mr. Randhir singh sir ,Dr.Pyare Lal,Mr. Sony Goyal and then the session was conducted by fourth year mechanical department's student of our college who have explained us about and how communication skills matter in our life and he also taught us about how we can improve our communication skills.
+
+# Date :- 17/07/24
+# Induction program
+
+Day 6 of induction program today their were our classes. First class was of mathematics in which we have a huge discussion on basics of mathematics important topic integral, derivatives, differentiability,etc and we have practised some examples related to our topic. Then our second class was of UHV. here we have discussed our second chapter of UHV.
+
 
 # Date :- 24/07/24
 # Induction program
