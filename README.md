@@ -92,12 +92,13 @@ Then some students have showed their talent . Overall today I have learned a lot
 # Date :- 25/7/23
 # Indiction program
 
-Today our first class qas of UHV which was conducted by Manjot kaur mam.firstly we have a discussion on our previous chapters. Then further we discussed our next chapter which is Understanding harmony with family Then our class ended at 11:30. Then our class is of Canva in which we have studied the intro of canva and how to use canva for making tamples, presentations,etc. using canva.Oir seniors taught us very politely and in a decent way.then their was break from 12:30 to 1:30.Then in the next lecture their was pur maths test in which we have done well.
-
-Today our first class was of UHV which was conducted by Manjot kaur mam.Firstly in class we have a discussion on our perivious chapter then we discussed our next chapter which is understanding harmony in the family.She taught us about human relationships with others and human brings feelings.the we have a break for 15 min.Then our other class of canva starts at 
+Today our first class was of UHV which was conducted by Manjot kaur mam.firstly we have a discussion on our previous chapters. Then further we discussed our next chapter which is Understanding harmony with family Then our class ended at 11:30. Then our class is of Canva in which we have studied the intro of canva and how to use canva for making tamples, presentations,etc. using canva.Oir seniors taught us very politely and in a decent way.then their was break from 12:30 to 1:30.Then in the next lecture their was pur maths test in which we have done well. In our last class we have our Math's test conducted by Manjot kaur mam.
 
 # Date :- 26/7/23
 # Indiction program
 
-last day of induction program first session was conducted by a Homeopathic Practitioner Dr.Kanwalpreet ksur Bhatt . mam was a mediational guider. she taught us that how mediation plays an important and vital role in our human being's life . How we gain cosmic energy just by doing meditation.Then bank of baroda told us about some key future of study loan .Then further their ware aome singing and dance performances in which first year students have participated.It contains so much fun. 
-## Feedback 
+last day of induction program first session was conducted by a Homeopathic Practitioner Dr.Kanwalpreet ksur Bhatt . mam was a mediational guider. she taught us that how mediation plays an important and vital role in our human being's life . How we gain cosmic energy just by doing meditation.Then bank of baroda told us about some key future of study loan .Then further their ware aome singing and dance performances in which first year students have participated.It contains so much fun.
+
+# My experience throughout induction program.
+
+overall my experience throughout the induction program was full of fun. I had gain knowledge about college and about many more other things. I thanks to all the cosmic club members to organise this induction program for all us freashers, thanks and thanks to Dr. Harpreet kaur mam and Mr. Randhir sir and the management staff of college "THANK YOU ".
