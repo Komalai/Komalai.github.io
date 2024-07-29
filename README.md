@@ -72,7 +72,9 @@ Day 7 first session was of pear intersection which was conducted by our senior w
 # Date :- 19/07/24
 # Induction program
 
-Day 8 of induction program 
+Day 8 of induction program . Today's auditorium session was confucted by Er. Kanwardeep Singh Kalra which was filled by both entertainment and knowledge. Sir has taught us about some triks of mathematics and science that all things that sir has taught us were like magic to us .Sir has counted us the total bones in our bodylike :-
+![1000121044](https://github.com/user-attachments/assets/cb9c08d5-28b0-405f-9d30-97ebd984af38)
+
 
 # Date :- 24/07/24
 # Induction program
