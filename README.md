@@ -74,7 +74,12 @@ Day 7 first session was of pear intersection which was conducted by our senior w
 
 Day 8 of induction program . Today's auditorium session was confucted by Er. Kanwardeep Singh Kalra which was filled by both entertainment and knowledge. Sir has taught us about some triks of mathematics and science that all things that sir has taught us were like magic to us .Sir has counted us the total bones in our bodylike :-
 ![1000121044](https://github.com/user-attachments/assets/cb9c08d5-28b0-405f-9d30-97ebd984af38)
+sir has also introduced us to the various concepts of science like induction,confiction ,rain alarm,and many more other things with amazing experiments and examples.then further we have mantor interaction program
 
+# Date :- 22/07/24
+# Induction program
+
+Day 8 of induction program.here we have an auditorium session which was conducted by Mr. SB singh and Mr. Pushminder singh The whole lecture was revolving aroud self and self exploration.Msm has taught us that hoe self and self exploration is important and how we can be known about ourself.the next session was comducted by our seriors which was all about cosmic club. That how cosmic clib works what are its functions, under whoms supervision all the programs are held.And how we can be a part of cosmic club .
 
 # Date :- 24/07/24
 # Induction program
@@ -91,4 +96,8 @@ Today our first class qas of UHV which was conducted by Manjot kaur mam.firstly 
 
 Today our first class was of UHV which was conducted by Manjot kaur mam.Firstly in class we have a discussion on our perivious chapter then we discussed our next chapter which is understanding harmony in the family.She taught us about human relationships with others and human brings feelings.the we have a break for 15 min.Then our other class of canva starts at 
 
+# Date :- 26/7/23
+# Indiction program
 
+last day of induction program first session was conducted by a Homeopathic Practitioner Dr.Kanwalpreet ksur Bhatt . mam was a mediational guider. she taught us that how mediation plays an important and vital role in our human being's life . How we gain cosmic energy just by doing meditation.Then bank of baroda told us about some key future of study loan .Then further their ware aome singing and dance performances in which first year students have participated.It contains so much fun. 
+## Feedback 
